@@ -1,1 +1,1 @@
-# GEOGW12.github.io
+Map of My Favorite Destinations
